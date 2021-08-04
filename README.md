@@ -7,7 +7,7 @@
 
 - 📄 Know about my experiences [dmitriy-kudin](https://www.linkedin.com/in/dmitriy-kudin/)
 
-- ⚡ Telegram [that_guy_13](tg://t.me/that_guy_13)
+- ⚡ Telegram [that_guy_13](https://t.me/that_guy_13)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
