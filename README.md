@@ -5,9 +5,9 @@
 
 - 📫 How to reach me **kudin.dima@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/dmitriy-kudin/](https://www.linkedin.com/in/dmitriy-kudin/)
+- 📄 Know about my experiences [dmitriy-kudin](https://www.linkedin.com/in/dmitriy-kudin/)
 
-- ⚡ Telegram **tg://t.me/that_guy_13**
+- ⚡ Telegram [@that_guy_13](tg://t.me/that_guy_13)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
